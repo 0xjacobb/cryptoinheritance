@@ -1,2 +1,2 @@
 # cryptoinheritance
-https://www.cryptoinheritancebook.com
+https://www.kryptonachlass.com
