@@ -1,2 +1,2 @@
 # cryptoinheritance
-https://www.kryptonachlass.com
+https://www.marcsteiner.tech
